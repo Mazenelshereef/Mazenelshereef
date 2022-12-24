@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Mazenelshereef Mazen Ahmed 
+- 👋 Hi, I’m @Mazenelshereef Mazen Ahmed Mahmoud
 - 👀 I’m interested in Programing and Software engineering 
 - 🌱 I’m currently Studing Computer Science and Artificial intelligence 
 - 📫You can reach me By my linkdin Account https://www.linkedin.com/in/mazenelshereef/
